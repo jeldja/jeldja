@@ -8,7 +8,7 @@ lives of the under represented communities and just communities throughout the w
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm ambidextrous! 
 
-I hope you enjoy this journey as I learn how to apply the skills I learn to projects! :)
+I hope you enjoy this journey as I apply the skills I learn to projects and grow in knowledge together! :)
 <!---
 jeldja/jeldja is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
