@@ -3,8 +3,7 @@
 I want to apply the skills I learn to revolutionize technology, products, and software that would help improve
 lives of the under represented communities and just communities throughout the world!
 - 🌱 I’m currently learning computer science at Georgia Institute of Technology. (It's really fun!)
-- 📫 How to reach me
-  Email: jelovyadjaja@gmail.com
+- 📫 How to reach me , Email: jelovyadjaja@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm ambidextrous! 
 
